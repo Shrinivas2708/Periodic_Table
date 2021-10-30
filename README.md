@@ -1,1 +1,3 @@
 # Periodic_Table
+
+DON'T USE WITHOUT PERMISSION AND FOR PERMISSION SEND MAIL ON "ssherikar2005@gmail.com"
